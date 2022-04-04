@@ -10,3 +10,16 @@
   **************************
 I'm a hardworking person with organizational skills and excellent communication skills. My experience in sales is helping me at any situations. So difficulties made me flexible and open-minded. My goal is to reach new horizons wherever I want and however I want.
   **************************
+I've finished Gomel State University at physics department and also finished university in France (IUP, Clermont-Ferrand) as a manager-economist.
+
+  
+I know a little bit basic stuff in
+  ** HTML
+  ** CSS
+  ** JS
+ 
+
+I've been in USA several times. 
+  >So my english is good (it's just a funny noob phrase xD )). 
+
+  Approximately A2-B1 level. It depends on how often you use a language.
